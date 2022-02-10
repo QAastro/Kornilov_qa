@@ -1,1 +1,0 @@
-# Kornilov_qa
